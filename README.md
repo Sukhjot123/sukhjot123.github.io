@@ -4,10 +4,7 @@ Hello everyone my name is Sukhjot Kaur. I am from Ludhiana district. I got 87% i
 
 
 Here is my online excel course certificate from great learning 
-https://www.mygreatlearning.com/certificate/XQRLFOLL
-
-!
-5250fd9511fed94cf62471e85cd7afebdf99ccc85740967a0660a000cbcd097c 0](https://github.com/user-attachments/assets/f43d4831-3038-456c-8a20-bee6e72b7476)
+!5250fd9511fed94cf62471e85cd7afebdf99ccc85740967a0660a000cbcd097c 0](https://github.com/user-attachments/assets/f43d4831-3038-456c-8a20-bee6e72b7476)
 
 The Excel course was highly beneficial for me. It  offered me a comprehensive introduction to Excel's core functions and features. The content and videos were well-organized and easy to follow, covering essential topics such as formulas, data analysis, sorting table and filters. Interactive exercises reinforced learning and helped build practical skills. The instructor explained concepts clearly and provided useful tips and shortcuts. The course structure allowed for self-paced learning, making it accessible to everyone. Overall, it was a valuable resource for both beginners and those looking to refresh their Excel skills.
 

@@ -1,6 +1,6 @@
 # sukhjot123.github.io
 
-Hello everyone my name is Sukhjot Kaur. I am from Ludhiana district. I got 87% in non medical stream. Now I have taken admission in Guru Nanak Dev Engineering college, Ludhiana in Btech IT department.
+Hello everyone my name is Sukhjot Kaur. I am from Ludhiana district. I got 87% in non medical stream. Now I have taken admission in Guru Nanak Dev Engineering college, Ludhiana in Btech IT (Information Technology) department.I am very passionate and enthusiastic. I want to enhance myself in coding that is why i opted this course and i m sure that till the end of 4th year I will be perfect in coding amd web designing.
 
 
 Here is my online excel course certificate from great learning 
